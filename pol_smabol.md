@@ -7,10 +7,10 @@ https://thestoveandi.com/2013/12/05/the-humble-pol-sambol/
 ...with my own modifications, as of 1-25-2025.
 
 
-- 340 G grated, coconut, +/- (this is one package of frozen which they sell at Viks)
+- 340 g grated, coconut, +/- (this is one package of frozen which they sell at Viks)
 - 6 whole dried red chillies
-- 2 TB minced red onion, shallot, button onions
-- 1 tbsp Maldive fish
+- 2 tbs minced red onion, shallot, button onions
+- 1 tbs Maldives fish
 - 1 tsp salt
 - a lime
 - mustard seeds
