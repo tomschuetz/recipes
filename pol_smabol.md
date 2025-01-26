@@ -7,10 +7,10 @@ https://thestoveandi.com/2013/12/05/the-humble-pol-sambol/
 ...with my own modifications, as of 1-25-2025.
 
 
-- 340 g grated, coconut, +/- (this is one package of frozen which they sell at Viks)
+- 340 G grated, coconut, +/- (this is one package of frozen which they sell at Viks)
 - 6 whole dried red chillies
-- 2 tbs minced red onion, shallot, button onions
-- 1 tbs Maldives fish
+- 2 TB minced red onion, shallot, button onions
+- 1 tbsp Maldive fish
 - 1 tsp salt
 - a lime
 - mustard seeds
@@ -38,5 +38,7 @@ When they start to pop and splutter, add the remaining onion/shallot and 5-6 cur
 Sauté until onions turn golden brown. Add the coconut mixture and give it a good mix. 
 
 Sauté the sambol until the coconut turns slightly dry (around 2-3 minutes). 
+
+Deglaze the pan with lime juice, and mix it to incorporate. At least one whole lime, and scrape the pan.
 
 Allow to cool completely before jarring for refrigerator.
